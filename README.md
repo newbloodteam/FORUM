@@ -1,2 +1,2 @@
-# Forum
-https://github.com/orgs/newbloodteam/teams/entire-team
+# Forum (To proceed, press the link BELOW!)
+
