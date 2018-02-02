@@ -1,2 +1,2 @@
-# Forum (To proceed, press the link BELOW!)
+# Forum https://github.com/orgs/newbloodteam/teams/root/discussions?pinned=1
 
