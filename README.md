@@ -1,2 +1,2 @@
-# Forum https://github.com/orgs/newbloodteam/teams/root/discussions?pinned=1
+# Forum: https://github.com/orgs/newbloodteam/teams/root/discussions?pinned=1
 
